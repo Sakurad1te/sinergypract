@@ -1,1 +1,1 @@
-# sinergypract
+# Introductory practice | Educational practice | synergy
